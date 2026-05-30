@@ -1,16 +1,13 @@
-## Hi there 👋
+<p align="center">
+<img src="https://autism.crd.co/assets/images/gallery02/b7ce7765.gif?v=d6547f5c" /> 𝐓𝐡𝐚𝐧𝐤𝐬 𝐟𝐨𝐫 𝐜𝐡𝐞𝐜𝐤𝐢𝐧𝐠 𝐨𝐮𝐭 𝐦𝐲 𝐩𝐫𝐨𝐟𝐢𝐥𝐞! 𝐅𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐜𝐡𝐞𝐜𝐤 𝐨𝐮𝐭 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭! <img src="https://autism.crd.co/assets/images/gallery02/2b8d8ca9.gif?v=d6547f5c" />
+<p align="center">
+<img src="https://files.catbox.moe/8q60e0.png"/>
+</p>
 
-<!--
-**xempince/xempince** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://autism.crd.co/assets/images/gallery02/0f8f5b1b.gif?v=d6547f5c" />  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0b1cb6ed-b614-4d6f-a792-6e2d2db50e49/df12p8o-a54bbdfa-c143-4a15-b0cc-68bfce6938df.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzBiMWNiNmVkLWI2MTQtNGQ2Zi1hNzkyLTZlMmQyZGI1MGU0OVwvZGYxMnA4by1hNTRiYmRmYS1jMTQzLTRhMTUtYjBjYy02OGJmY2U2OTM4ZGYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.P1wPoN1WJAJKtqXRxxChrckGDuqi6vcG_3nV4J-fnho" />
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0b1cb6ed-b614-4d6f-a792-6e2d2db50e49/df12p9l-02d1e991-f289-4937-842e-e440a94f21b4.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzBiMWNiNmVkLWI2MTQtNGQ2Zi1hNzkyLTZlMmQyZGI1MGU0OVwvZGYxMnA5bC0wMmQxZTk5MS1mMjg5LTQ5MzctODQyZS1lNDQwYTk0ZjIxYjQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.2WgoAtRsYWeRr3k6qG3NeOd_UpST7Xc355k_0LoEeKU" /> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0b1cb6ed-b614-4d6f-a792-6e2d2db50e49/df1b9bm-5264828a-2251-4d6d-8481-d8a314ca1e23.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzBiMWNiNmVkLWI2MTQtNGQ2Zi1hNzkyLTZlMmQyZGI1MGU0OVwvZGYxYjlibS01MjY0ODI4YS0yMjUxLTRkNmQtODQ4MS1kOGEzMTRjYTFlMjMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9vGT4ZkQbQjX36O88LoQfkWIii9NRKX91j1r1G-0H30" /> <img src="https://autism.crd.co/assets/images/gallery02/0b971b30.gif?v=d6547f5c" />
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+ audhd + c-ptsd, being tested for BPD. please IWEC.  I'm an artist that you'll see sitting around ponytown sometimes! I have paralyzing social anxiety so I often freeze up when people attempt to talk to me, but im trying to get better about it. If you recongize my cosplays or like my ponies, dont hesitate to reach out, I love talking about my hyperfixations and interests!
+<p align="center">
