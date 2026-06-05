@@ -13,7 +13,7 @@
  <p align="left">
 <img src="https://files.catbox.moe/bhme0g.gif" /> 
 <p align="center">
-<img src="https://media1.tenor.com/m/OCaYQjTPlKkAAAAC/animator-vs-animation-alan-becker.gif"/>
+<img src="https://files.catbox.moe/88eyxc.gif"/>
    <p align="right">
 <img src="https://files.catbox.moe/svg9ke.gif" /> 
      <p align="center">
