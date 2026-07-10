@@ -32,7 +32,8 @@
 <img src="https://64.media.tumblr.com/137a6776f2930a7f6ff29af3480d58d4/71014e96892e1729-04/s2048x3072/ebe122c470939431d1eb3839b7d787de190b2908.pnj" /> 
       <img src="https://64.media.tumblr.com/b24ec32bfc1f45d1ba9ae5ed61287a56/16658e3dcbb8cc26-1f/s75x75_c1/2fee63988ef425ce4ec698ef456153e826aeb3bb.webp" /> 
               <p align="center"> ɪ ᴅᴏ ʜᴀᴠᴇ ᴄ-ᴘᴛꜱᴅ, ʙᴘᴅ, ᴀᴜᴅʜᴅ, ᴀʟᴏɴɢ ᴡɪᴛʜ ᴛᴇʀʀɪʙʟᴇ ꜱᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ + ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ꜱᴏ ᴘʟᴇᴀꜱᴇ ʙᴇ ᴘᴀᴛɪᴇɴᴛ ᴀɴᴅ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴄᴀʀᴇ. ɪ ᴏꜰᴛᴇɴ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ʜᴏᴡ ᴛᴏ ᴇɴᴅ ɪɴᴛᴇʀᴀᴄᴛɪᴏɴꜱ ꜱᴏ ɪꜰ ɪ ꜱᴜᴅᴅᴇɴʟʏ ꜱᴛᴏᴘ ᴡʜᴀᴛ ɪ'ᴍ ᴅᴏɪɴɢ ᴏʀ ᴛᴜʀɴ ᴀᴡᴋᴡᴀʀᴅ ɪ ᴀᴘᴏʟᴏɢɪᴢᴇ ʟᴍᴀᴏ.
-<p align="center">  
+<p align="center">  doubles can be triggering for me. I will block you if your a TDL double.
+  <p align="center">
  <p align="center">  ⠀
 <img src="https://64.media.tumblr.com/137a6776f2930a7f6ff29af3480d58d4/71014e96892e1729-04/s2048x3072/ebe122c470939431d1eb3839b7d787de190b2908.pnj" /> 
   <img src="https://64.media.tumblr.com/ab02a7372623b5e9d2910a5b4fac2ae6/16658e3dcbb8cc26-e1/s75x75_c1/e8dab183aa57d046773dfd24040360f6e98708db.gifv" /> 
