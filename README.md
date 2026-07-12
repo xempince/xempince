@@ -26,6 +26,7 @@
  <p align="center">
 ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ, ᴄᴜᴅᴅʟᴇ, ᴏʀ ʀᴏʟᴇᴘʟᴀʏ ᴡɪᴛʜ ᴍᴇ <3 ɪ ᴀᴍ ᴏᴋᴀʏ ᴡɪᴛʜ ᴀɴᴅ ᴛʙʜ ᴇɴᴄᴏᴜʀᴀɢᴇ ꜱʜɪᴘᴘᴇʀꜱ ᴀɴᴅ ʏᴜᴍᴇꜱ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ! ɪ ᴀᴍ ɴᴏᴛ ᴀ ᴛᴅʟ ʀᴏʟᴇᴘʟᴀʏᴇʀ. ɪ ᴀᴍ ᴀ ᴋɪɴ, ʙᴜᴛ ɪ ᴀᴍ ᴏᴘᴇɴ ᴛᴏ ʀᴏʟᴇᴘʟᴀʏɪɴɢ ᴡʜᴇɴ ɴᴏᴛ ꜱʜɪꜰᴛᴇᴅ.
  ʏᴏᴜ'ʟʟ ᴏꜰᴛᴇɴ ꜰɪɴᴅ ᴍᴇ ɪɴ ᴛʜᴇ ᴀᴠᴀ ᴀʀᴇᴀ, ʙᴜᴛ ɪ ᴍɪɢʜᴛ ᴀʟꜱᴏ ʙᴇ ꜱᴘᴏᴛᴛᴇᴅ ᴄᴏꜱᴘʟᴀʏɪɴɢ ᴍʏ ᴏᴛʜᴇʀ ꜰᴀɴᴅᴏᴍꜱ ᴇʟꜱᴇᴡʜᴇʀᴇ.
+	<p align="center">ʜɪɢʜ ᴀɴxɪᴇᴛʏ, ᴘʟᴇᴀꜱᴇ ᴜꜱᴇ ᴛᴛɢꜱ ᴡɪᴛʜ ᴍᴇ!
  <p align="center"> ᴄʜᴏᴅᴀʀᴋ + ᴠɪᴄʟᴏʀᴅ ʜɪɢʜʟʏ ᴇɴᴄᴏᴜʀᴀɢᴇᴅ ᴘʟᴇᴀꜱꜱᴇᴇᴇ <3
  <p align="center"> ... sign my ata pretty plssss.... https://xempince.atabook.org/
  <p align="center"> ᴘʟᴇᴀꜱᴇ ᴀꜱᴋ ʙᴇꜰᴏʀᴇ ʀᴇꜰᴇʀᴇɴᴄɪɴɢ ᴏʀ ᴛᴀᴋɪɴɢ ɪɴꜱᴘɪʀɪᴀᴛɪᴏɴ ꜰʀᴏᴍ ᴍʏ ᴘᴏɴɪᴇꜱ. ᴅᴏ ɴᴏᴛ ᴇɴᴛɪʀᴇʟʏ ᴄᴏᴘʏ ᴛʜᴇᴍ.
@@ -55,40 +56,42 @@
 	</colgroup>
 	<tbody>
 		<tr style="height: 30px;">
-			<td class="fr-highlighted" style="text-align: center;">ʙᴀꜱɪᴄ ᴅɴɪ</td>
+			<td class="fr-highlighted" style="text-align: center;">basic dni (homo/transphobes, racists, ablists, bigots, ect.)</td>
 			<td class="fr-highlighted">
-				<p data-pasted="true">ɪ ᴀᴍ ᴏꜰꜰᴛᴀʙ ᴀ ʟᴏᴛ ꜱᴏ ɪ ᴍɪɢʜᴛ ɴᴏᴛ ɪɴꜱᴛᴀɴᴛʟʏ ʀᴇꜱᴘᴏɴᴅ. ɪ ᴀʟꜱᴏ ᴊᴜꜱᴛ ᴍɪɢʜᴛ ɴᴏᴛ ʀᴇꜱᴘᴏɴᴅ ᴅᴜᴇ ᴛᴏ ꜰʀᴇᴇᴢɪɴɢ ᴜᴘ ᴡɪᴛʜ ᴀɴxɪᴇᴛʏ.</p>
+				<p data-pasted="true">I am offtab alot so i might not instantly respond, or i probably wont resopnd due to freezing up with anxiety.</p>
 			</td>
 		</tr>
 		<tr>
-			<td style="text-align: center;">ᴍɪɴᴏʀꜱ
+			<td style="text-align: center;">minors
 				<br>
 			</td>
 			<td>
-				<p data-pasted="true">ɪ ᴀᴍ ᴀ ꜰɪᴄᴛɪᴏɴᴋɪɴ, ɴᴏᴛ ᴊᴜꜱᴛ ᴀ ʀᴏʟᴇᴘʟᴀʏᴇʀ.</p>
+				<p data-pasted="true">I am a fictionkin, not just a roleplayer. I identify as tdl on a personal level and it can be upsetting to be invalidated as such.</p>
 			</td>
 		</tr>
 		<tr style="height: 35px;">
 			<td style="text-align: center;">
-				<p>ᴛʀᴜᴍᴘ ꜱᴜᴘᴘᴏʀᴛᴇʀꜱ</p>
+				<p>trump supporters</p>
 			</td>
-			<td>ɪᴍ ᴀ ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀ + ᴀ ꜰʀᴇᴀᴋ ʟᴍᴀᴏ
+			<td>I'm a yumeshipper and a freak lmao
 				<br>
 			</td>
 		</tr>
 		<tr style="height: 45px;">
-			<td style="text-align: center;">ꜰɪᴄᴛᴋɪɴ ᴅᴏᴜʙʟᴇꜱ
+			<td style="text-align: center;">fictkin + yume doubles
 				<br>
 			</td>
-			<td>ɪ ʜᴀᴠᴇ ᴛᴇʀʀɪʙʟᴇ ᴀɴxɪᴇᴛʏ ᴀɴᴅ ᴍɪɢʜᴛ ꜰʀᴇᴇᴢᴇ ᴜᴘ ᴏʀ ᴅɪꜱᴛᴀɴᴄᴇ ᴍʏꜱᴇʟꜰ ꜰʀᴏᴍ ʏᴏᴜ ꜰᴏʀ ᴍʏ ᴄᴏᴍꜰᴏʀᴛ.&nbsp;ᴘʟᴇᴀꜱᴇ ᴜꜱᴇ ᴛᴛɢꜱ ᴡɪᴛʜ ᴍᴇ.</td>
+			<td>I have terrible anxiety and might freeze up or distance myself for my comfort. Please dont take it personally and use ttgs with me.
 		</tr>
 		<tr>
 			<td style="text-align: center;">
-				<p data-pasted="true">ꜱᴇᴄʟᴏʀᴅ/ᴠɪᴄꜱᴇᴄ ꜱʜɪᴘᴘᴇʀꜱ
-					<br>ɴᴀᴠʏᴍᴀɴɢᴏ/ᴅᴀʀᴋᴍᴀɴɢᴏ ꜱʜɪᴘᴘᴇʀꜱ</p>
+				<p data-pasted="true">-seclord/vicsec shippers
+					<br>-navymango/darkmango shippers
+				<br>-romantic purpmango/chosec shippers (im ok with familial)
+				<br>-sonamy shippers</p>
 			</td>
 			<td>
-				<p data-pasted="true">ɪ ʜᴀᴠᴇ ᴀᴜᴛɪꜱᴍ + ᴀᴅʜᴅ ᴀɴᴅ ᴍɪɢʜᴛ ɴᴏᴛ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ ꜱᴏᴄɪᴀʟ ᴄᴜᴇꜱ ᴀɴᴅ ᴍɪɢʜᴛ ɴᴏᴛ ʜᴀᴠᴇ ᴀ ꜰɪʟᴛᴇʀ. ᴘʟᴇᴀꜱᴇ ʙᴇ ᴘᴀᴛɪᴇɴᴛ ᴡɪᴛʜ ᴍᴇ.</p>
+				<p data-pasted="true">I have autism + adhd and struggle understanding social cues and controlling my filter. please be patient with me. I can swear alot and i have crude humor, so please distance from me if that makes you uncomfortable.</p>
 			</td>
 		</tr>
 	</tbody>
