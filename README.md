@@ -13,7 +13,10 @@
  <p align="left">
 <img src="https://files.catbox.moe/bhme0g.gif" /> 
 <p align="center">
-<img src="https://i.postimg.cc/N0hDqGnY/ezgif-4609943deced17e0.gif"/>
+ <p align="center">  
+<img src="https://i.postimg.cc/jSjDkM2D/f5bb9726dca10fb736d5694ec3821a10.jpg" alt="Description" width="900">
+
+
    <p align="right">
 <img src="https://files.catbox.moe/svg9ke.gif" /> 
      <p align="center">
@@ -99,7 +102,4 @@
   <p align="center">
   <img src="https://64.media.tumblr.com/ab02a7372623b5e9d2910a5b4fac2ae6/16658e3dcbb8cc26-e1/s75x75_c1/e8dab183aa57d046773dfd24040360f6e98708db.gifv" />
 <img src="https://64.media.tumblr.com/3b53791fc0828a9be5b994832f45183e/0f1dd797b5574c42-e3/s75x75_c1/c534e2e7a390beab9439f66653d354119efe0b4a.gifv" /> <img src="https://64.media.tumblr.com/3b53791fc0828a9be5b994832f45183e/0f1dd797b5574c42-e3/s75x75_c1/c534e2e7a390beab9439f66653d354119efe0b4a.gifv" /> <img src="https://64.media.tumblr.com/3b53791fc0828a9be5b994832f45183e/0f1dd797b5574c42-e3/s75x75_c1/c534e2e7a390beab9439f66653d354119efe0b4a.gifv" /> <img src="https://64.media.tumblr.com/ab02a7372623b5e9d2910a5b4fac2ae6/16658e3dcbb8cc26-e1/s75x75_c1/e8dab183aa57d046773dfd24040360f6e98708db.gifv" /> 
- <p align="center">  
-<img src="https://i.postimg.cc/jSjDkM2D/f5bb9726dca10fb736d5694ec3821a10.jpg" alt="Description" width="900">
-
 
