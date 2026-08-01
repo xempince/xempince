@@ -13,7 +13,7 @@
  <p align="left">
 <img src="https://files.catbox.moe/bhme0g.gif" /> 
 <p align="center">
-<img src="https://files.catbox.moe/88eyxc.gif"/>
+<img src="https://i.postimg.cc/N0hDqGnY/ezgif-4609943deced17e0.gif"/>
    <p align="right">
 <img src="https://files.catbox.moe/svg9ke.gif" /> 
      <p align="center">
